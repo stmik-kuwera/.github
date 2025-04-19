@@ -17,5 +17,5 @@
 🚀 **Join Us**  
 Whether you're a student, developer, mentor, or collaborator — there's a place for you at SOTN!
 
-> _“Empowering Digital Visionaries of Tomorrow.”_
+> _“College For Future Technopreneur.”_
 
