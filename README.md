@@ -1,1 +1,0 @@
-# stmik-kuwera
